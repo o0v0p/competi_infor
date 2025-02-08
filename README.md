@@ -1,0 +1,1 @@
+# competi_infor
